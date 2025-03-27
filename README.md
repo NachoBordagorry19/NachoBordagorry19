@@ -1,1 +1,1 @@
-## Estudiante de licenciatura en sistemas 
+## Estudiando * __ *
